@@ -5,7 +5,7 @@
 
 ## Interests
 - Code
-- Biking
+- MotoGP
 - Flyfishing
 
 ## Lifelong Learner
